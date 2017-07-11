@@ -1,3 +1,3 @@
 # hello-world
 Hello, Sun Devils!
-Summer is here.
+School will start in August 17
